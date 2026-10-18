@@ -206,4 +206,4 @@ Web Dumper is provided as a full free version with all features and updates incl
 Don't miss out on the chance to access your favorite websites offline. **Download Web Dumper free today!**
 
 ---
-**Last updated:** 2026-10-17 22:10:07 UTC
+**Last updated:** 2026-10-18 00:49:37 UTC
